@@ -1,5 +1,5 @@
 # About us
-We seek to **discover** new ways to improve health; to **disseminate and implement ** discoveries into evidence-based practices; and to **enhance** joy in the practice of medicine.
+We seek to **discover** new ways to improve health; to **disseminate and implement** discoveries into evidence-based practices; and to **enhance** joy in the practice of medicine.
 
 We are a multidisciplinary team of researchers, focused on the **science of healthcare delivery**.
 
